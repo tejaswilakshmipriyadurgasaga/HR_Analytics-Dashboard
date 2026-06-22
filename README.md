@@ -42,6 +42,9 @@ Key Findings
 - Male attrition is higher than female attrition.
 - Early-tenure employees have higher attrition rates.
 
+Connect Me On Linkedin
+www.linkedin.com/in/stlpdurga
+
 Author
 
 Saga Tejaswi Lakshmi Priya Durga
